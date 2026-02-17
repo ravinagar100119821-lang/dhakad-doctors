@@ -1,2 +1,0 @@
-# dhakad-doctors
-sangatan
